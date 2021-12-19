@@ -2,9 +2,7 @@
 
 - 👀 I’m interested in positive and beneficial social connections!
 
-- 🌱 I’m currently learning about hyperdimensional communications sub-systems and the roles they play in socio-economic, 
--   civil and military, technological, multimedia and legislative functionalities within my relative locale - as well as the impact those roles have on
--   international policies within the context of our world's modern geo-political equilibrium.
+- 🌱 I’m currently learning about hyperdimensional communications sub-systems and the roles they play in socio-economic, civil and military, technological, multimedia and legislative functionalities within my relative locale - as well as the impact those roles have on international policies within the context of our world's modern geo-political equilibrium.
 
 - 💞️ I’m looking for like-minded individuals who aren't "religiously toxic"
 
