@@ -6,7 +6,7 @@
 
 - 💞️ I’m looking for like-minded individuals who aren't "religiously toxic"
 
-- 📫 Message me @ lst_c0ast_studios#9976 on discord for business inquiries, questions or comments. Any body, board, council, broadcast (whether intended or not), group or collective claiming any representation or affiliation with lst_c0ast_studios or anybody related to lst_c0ast_studio without official notice from lst_c0ast_studios is unauthorized. Any terms and agreements are subject to change without notice and can be changed within reason of fair and ethical business practice for most if not all clientele. Send your questions comments and business inquiries to lst_c0ast_studios#9976 on discord for an official affiliate response.
+- 📫 Message me at lst_c0ast_studios#9976 on discord for business inquiries, questions or comments. Any body, board, council, broadcast (whether intended or not), group or collective claiming any representation or affiliation with lst_c0ast_studios or anybody related to lst_c0ast_studio without official notice of approval by physical mail from lst_c0ast_studios is unauthorized. Any terms and agreements are subject to change without notice and can be changed within reason of fair and ethical business practice for most if not all clientele. Send your questions comments and business inquiries to lst_c0ast_studios#9976 on discord for an official affiliate response.  Do note, you will not get an official letter of notice unless you have directly contacted our associate at lst_c0ast_studios#9976 on discord.
 
 <!---
 
