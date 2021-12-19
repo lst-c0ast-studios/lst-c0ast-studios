@@ -6,7 +6,7 @@
 
 - 💞️ I’m looking for like-minded individuals who aren't "religiously toxic"
 
-- 📫 Message me @ lst_c0ast_studios#9976 on discord for business inquiries.
+- 📫 Message me @ lst_c0ast_studios#9976 on discord for business inquiries, questions or comments.
 
 <!---
 
