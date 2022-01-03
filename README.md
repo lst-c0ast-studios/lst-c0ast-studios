@@ -6,7 +6,7 @@
 
 - 💞️ I’m looking for like-minded individuals who aren't religiously toxic. As a writer, I look for people who push the boundaries of poetry and literature, classical method and theory. As a programmer, I want to read your code. As a person, I would love to get to know you for who you are and spend meaningful time with you if we're compatible. As a businessman, I am always looking for quality talent to work with. If I were to run for a position in the field of governance, I would seek to propagate balanced and pragmatic leadership in order to oppose stagnation in legislative idiosynchronicities within various branches.
 
-- 📫 Message on telegram for business rates, inquiries, questions or comments. Any body, board, council, broadcast (whether intended or not), group or collective claiming any representation or affiliation with lst_c0ast_studios or it's affiliates is not authorized.
+- 📫 Message on telegram @ https://t.me/lst_c0ast_studios for business rates, inquiries, questions or comments. Any body, board, council, broadcast (whether intended or not), group or collective claiming any representation or affiliation with lst_c0ast_studios or it's affiliates is not authorized.
 
 <!---
 
