@@ -1,4 +1,4 @@
-- 👋 Hi, I’m A.D.C. I work at and own a small portable art studio @lst-c0ast-studios. I'm currently in the process of designing a series of languages for encryption, coding, reading, writing and speaking. This might be my lengthiest online page. Here are some other links https://linktr.ee/lst_c0ast_studios
+- 👋 Hi, I’m A.D.C. I work at and own a small portable art studio @lst-c0ast-studios. I'm currently in the process of designing a series of languages for encryption, coding, reading, writing. I have come online to study your source. This might be my lengthiest online page. Here are some other links https://linktr.ee/lst_c0ast_studios
 
 - 👀 I’m interested in positive and beneficial social connections. I'm a professional audio engineer. When I'm not writing, I run a service dedicated to audio & video. We do hardware, software, setup, takedown, repairs, design, testing, studio dubs, edits, mixing, mastering, booking, and so on. We have dedicated sessions musicians and network with many bright, multi-faceted and talented individuals.
 
