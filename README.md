@@ -8,7 +8,7 @@
 
 - 📫 Message for rates, inquiries, questions or comments. Any body, board, council, broadcast (whether intended or not), group or collective, claiming any representation or affiliation with lst_c0ast_studios is not authorized to do so and any views, opinions or beliefs of such previously mentioned parties do not necessarily reflect the veiws or opinions of lst_c0ast_studios or any of lst_c0ast_studios affiliates.
 
-You can donate BTC to support lst_c0ast_studios here - bc1qgeqnykarplsh6xptr0ckctsnsvc3a59clppuvh
+You can support us by reaching out and inquiring about our services or simply donate BTC to bc1qgeqnykarplsh6xptr0ckctsnsvc3a59clppuvh THANK YOU!
 
 <!---
 
