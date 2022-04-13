@@ -1,4 +1,4 @@
-- 👋 Hi, I work at and own a small portable studio @lst-c0ast-studios. I'm currently in the process of developing a language for encrypting information offline. I'm here mainly for study. I'm also an artist. Here are some other links https://linktr.ee/lst_c0ast_studios
+- 👋 Hi, I work at and own a small portable studio @lst-c0ast-studios. I'm currently in the process of developing a language. I'm here mainly for study. I'm also an artist. Here are some other links https://linktr.ee/lst_c0ast_studios
 
 - 👀 I’m interested in positive and beneficial social connections. I'm a professional audio engineer. When I'm not writing, I run a service dedicated to audio & video. We do hardware and software setups & takedowns. Repairs, custom design, testing, audio dubbing, edits, mixing, mastering, booking and so on. We have dedicated sessions musicians and network with many bright, multi-faceted and talented individuals.
 
