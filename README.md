@@ -7,12 +7,12 @@
 - 💞️ I’m looking for like-minded people who aren't religiously toxic. I look for people who push the boundaries of literature, classical method and theory. As a programmer, I want to read your code. As a person, I would love to get to know you for who you are. As a businessman, I am always looking for quality and talented people to work with. If I were to run for a position in a field of governance, I would seek to propagate balanced and pragmatic leadership in order to oppose stagnation in legislative idiosynchronicities, albiet the political spectrum of our current sphere of political quandaries can seem unfathomeble as it's a true struggle for anyone who pay's attention to such issues.
 
 - 📫 Message for rates, inquiries, questions or comments. 
-- 
 - DISCLAIMER -
-- Any body, board, council, broadcast (whether intended or not), group or collective, claiming any representation or affiliation with lst_c0ast_studios is not authorized to do so and any views, opinions or beliefs of such previously mentioned parties do not necessarily reflect the views or opinions of lst_c0ast_studios or any of lst_c0ast_studios affiliates. 
-- 
+
+- Any body, board, council, broadcast (whether intended or not), group or collective, claiming any representation or affiliation with lst_c0ast_studios is not authorized to do so and any views, opinions or beliefs of such previously mentioned parties do not necessarily reflect the views or opinions of lst_c0ast_studios or any of lst_c0ast_studios affiliates.
+ 
 - No information on this page constitutes or shall be deemed to constitute an invitation or recommendation to invest or otherwise deal in shares or other securities in lst_c0ast_studios and the information contained herein does not constitute an offer to sell or the solicitation of an offer to buy any such securities.
--
+
 - You can support us by reaching out and inquiring about our services, engaging with us within reasonable means or simply donate BTC to the undermentioned address. Thank you for your time. 
 
 bc1qgeqnykarplsh6xptr0ckctsnsvc3a59clppuvh
