@@ -7,7 +7,7 @@
 - 💞️ I’m looking for like-minded people who aren't religiously toxic. I look for people who push the boundaries of literature, classical method and theory. As a programmer, I want to read your code. As a person, I would love to get to know you for who you are. As a businessman, I am always looking for quality and talented people to work with. If I were to run for a position in a field of governance, I would seek to propagate balanced and pragmatic leadership in order to oppose stagnation in legislative idiosynchronicities, albiet the political spectrum of our current sphere of political quandaries can seem unfathomeble as it's a true struggle for anyone who pay's attention to such issues.
 
 - 📫 Message for rates, inquiries, questions or comments. 
-- DISCLAIMER -
+- DISCLAIMER
 
 - Any body, board, council, broadcast (whether intended or not), group or collective, claiming any representation or affiliation with lst_c0ast_studios is not authorized to do so and any views, opinions or beliefs of such previously mentioned parties do not necessarily reflect the views or opinions of lst_c0ast_studios or any of lst_c0ast_studios affiliates.
  
