@@ -1,4 +1,4 @@
-- 👋 Hi, I work at and own a small independent portable studio called lst_c0ast_studios. That's pronounced "Last Coast Studios" in case you were wondering. I am also a private developer, an author and I am working on a book at the momentw as well as deeply involved the process of developing a few languages for use in information and cryptography. I've designed three languages, two of which are unique and have been in a rigorous testing phase. I test many other things on my own time for private research i.e. web design, infrastructure, security, various systems, networks and so on.
+- 👋 Hi, I work at and own a small independent portable studio called lst_c0ast_studios. That's pronounced "Last Coast Studios" in case you were wondering. I am also a private developer, an author and I am working on a book at the momentw as well as deeply involved the process of developing a few languages* for use in information and cryptography. They have been in a rigorous testing phase for a few years. I test many other things on my own time for private research i.e. web design, infrastructure, security, various systems, networks and so on.
 
 - I started an account on github to welcome open interaction and to have a grounds for study. I have experience with advanced hardware and software that I would love to talk about if you have the time. I'm also an artist and a professional audio engineer. When I'm not writing or working on developing code, I run a service dedicated to audio. Custom hardware builds, setups and takedowns, repairs, testing, live audio dubbing, post-production, ghostwriting, edits, mixing, mastering, booking, radio and so on. lst_c0ast_studios has dedicated sessions musicians and networks with many bright, multi-faceted and talented individuals. Here is a link to my other web pages https://linktr.ee/lst_c0ast_studios
 
@@ -20,6 +20,8 @@
 
 bc1qgeqnykarplsh6xptr0ckctsnsvc3a59clppuvh
 
+
+*see ex.A & ex.B within this repository
 <!---
 
 --->
