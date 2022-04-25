@@ -26,7 +26,7 @@
 
 - You can show your support by sending an email, engaging within reasonable means or simply donate BTC to the undermentioned address. Thank you for your time.
 
-bc1qgeqnykarplsh6xptr0ckctsnsvc3a59clppuvh
+bc1q84fkjqeszhj7jg2ech8dmalz3lj5gyujt8g6f8
 
 
 
