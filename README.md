@@ -1,5 +1,5 @@
 - 👋 Hi, I work at and own a small independent portable studio called lst_c0ast_studios. That's pronounced "Last Coast Studios" in case you were wondering. I've been teaching group and solo lessons for beginning guitarists and musicians exclusively for impoverished and disadvantaged young adults for over fifteen years.
-- 
+
 -  I'm in the process of writing a few books on a variety of topics including but not limited to music, life in north america, experimentation in language development and system design as well as a multitude of other things.
 
 - I am a private developer that is involved the process of developing a few languages for use in information and cryptography.
