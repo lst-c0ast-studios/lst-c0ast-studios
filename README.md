@@ -28,7 +28,7 @@
 
 - DISCLAIMER
 
-- Any body, board, council, broadcast (whether intended or not), group or collective, claiming any representation or affiliation with lst_c0ast_studios is not authorized to do so and any views, opinions or beliefs of such previously mentioned parties do not necessarily reflect the views or opinions of lst_c0ast_studios or any of lst_c0ast_studios affiliates.
+- Any body, board, council, broadcast (whether intended or not), group, collective, third-parties or associates claiming any representation or affiliation with lst_c0ast_studios or it's official associates, employees, affiliates, contractors, sub-contractors, hired contributors, non-hired contributors and/or associated people's under similar operations of business that are within or have been in direct or indirect contact with lst_c0ast_studios by and through any means are not authorized to do so. Any views, opinions or beliefs of such previously mentioned parties do not necessarily reflect the views or opinions of lst_c0ast_studios or any of lst_c0ast_studios' generally aforementioned affiliates.
  
 - No information on this page constitutes or shall be deemed to constitute an invitation or recommendation to invest or otherwise deal in shares or other securities in lst_c0ast_studios and the information contained herein does not constitute an offer to sell or the solicitation of an offer to buy any such securities.
 
